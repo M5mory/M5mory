@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @M5mory
 - 👀 I’m interested in playing interesting games
 - 🌱 I’m currently learning English 
-- 📫 How to reach me dc:serein_kami
+- 📫 How to reach me discord:serein_kami
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love sleeping!
 
